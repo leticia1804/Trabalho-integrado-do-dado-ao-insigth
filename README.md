@@ -4,7 +4,7 @@ Pós-graduação em Ciência de Dados
 
 Projeto Integrado – Do Dado ao Insight
 
-Julho/2025
+Julho/2026
 
 **Letícia dos Santos**
 
